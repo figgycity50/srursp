@@ -1,7 +1,7 @@
 srursp
 ======
 
-The Super Rainbow Ultra Retro Sprite Pack.
+The Super Rainbow Ultra Retro Sprite Pack. You'll love it :)
 
 Color Palette:
 
